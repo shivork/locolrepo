@@ -1,0 +1,1 @@
+hiii gus baise ham tumher kah rahe the kii push hio jayega bt nhaio hoi paya hai 
